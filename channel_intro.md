@@ -9,7 +9,7 @@ Green Climbers Home
 Huu Lung
 ```
 
-You probably have met me. 
+You probably have met me. I wear a blue helmet, belay glasses, and brown leather full-finger belay gloves.
 
 I am the self-proclaimed `Best Belayer`. In Cat Ba, I'm called `The Best Hands on the Island`. (`Best Hands` is a reference to an activity in the NFL Pro Bowl.) My climbing partner in Tonsai, a super cool Bavarian girl, calls me `Der Beste Sicherer` -- I just means `The Best Belayer` in German.
 
